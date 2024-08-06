@@ -13,7 +13,7 @@
 
 -Motocycler
 
-TWITTER:yeojinsoul__
+
 
 
 
