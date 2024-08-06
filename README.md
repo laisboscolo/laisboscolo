@@ -5,11 +5,11 @@
 
 -Sp-Brasil
 
--Ela/Dela
+-Ela/Dela - She/Her
 
 -Cursando Desenvolvimento de Sistemas(Sesi/Senai)
 
--Signo:Touro
+-Sign:Touro
 
 -Motorcycler
 
