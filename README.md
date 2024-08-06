@@ -13,7 +13,7 @@
 
 -Motocycler
 
-como se comunicar comigo:costaboscololais2008@gmail.com
+como se comunicar comigo? email:costaboscololais2008@gmail.com
 
 
 
