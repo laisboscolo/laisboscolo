@@ -9,11 +9,12 @@
 
 -Cursando Desenvolvimento de Sistemas(Sesi/Senai)
 
--Sign:Touro
+-Signo:Touro
 
 -Motorcycler
 
-como se comunicar comigo? email:costaboscololais2008@gmail.com
+como se comunicar comigo?
+email:costaboscololais2008@gmail.com
 
 
 
