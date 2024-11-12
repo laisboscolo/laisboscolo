@@ -1,17 +1,17 @@
 ## Olááááá pessoal, Lais Boscolo falando 𖠊
 ![chuu-dog-meme](https://github.com/user-attachments/assets/a707469e-9b45-41d2-8e52-6b4aaaacbf77)
 
--16 Anos
+* 16 Anos
 
--Sp-Brasil
+* Sp-Brasil
 
--Ela/Dela - She/Her
+* Ela/Dela - She/Her
 
--Cursando Desenvolvimento de Sistemas(Sesi/Senai)
+* Cursando Desenvolvimento de Sistemas(Sesi/Senai)
 
--Signo:Touro
+* Signo:Touro
 
--Motorcycler
+* Motorcycler
 
 * __como se comunicar comigo?__
 email:costaboscololais2008@gmail.com
