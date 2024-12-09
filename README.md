@@ -1,4 +1,4 @@
-## Olááááá pessoal, Lais Boscolo falando 𖠊
+## Olá pessoal, eu sou a Lais Boscolo 𖠊
 ![chuu-dog-meme](https://github.com/user-attachments/assets/a707469e-9b45-41d2-8e52-6b4aaaacbf77)
 
 * 16 Anos
