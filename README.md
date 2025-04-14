@@ -3,17 +3,16 @@
 ![image](https://github.com/user-attachments/assets/8b756c15-9f74-40d8-a8f3-797c931ff826)
 
 
-* 16 Anos - 16 years
+* 16 Anos - 16 years ✨
 
-* Sp-Brasil
+* Sp-Brasil 📍
 
-* Ela/Dela - She/Her
+* Ela/Dela - She/Her ✨
 
-* Cursando Desenvolvimento de Sistemas(Sesi/Senai) - Studying Systems Development (Sesi/Senai)
+* Cursando Desenvolvimento de Sistemas(Sesi/Senai) - Studying Systems Development (Sesi/Senai) 📖🤓👆
 
-* Signo: Touro - Sign: Taurus
+* Signo: Touro - Sign: Taurus ♉✨
 
-* Motorcycler
 
 * __como se comunicar comigo?__
 email:costaboscololais2008@gmail.com
