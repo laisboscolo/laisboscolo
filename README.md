@@ -1,5 +1,7 @@
 ## Olá, eu sou a Lais Boscolo 𖠊
-![chuu-dog-meme](https://github.com/user-attachments/assets/a707469e-9b45-41d2-8e52-6b4aaaacbf77)
+
+![image](https://github.com/user-attachments/assets/8b756c15-9f74-40d8-a8f3-797c931ff826)
+
 
 * 16 Anos - 16 years
 
