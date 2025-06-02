@@ -15,7 +15,7 @@
 
 
 * __como se comunicar comigo?__
-* email:costaboscololais2008@gmail.com
+* email: costaboscololais2008@gmail.com
 * instagram: @costalaisboscolo
 * twitter/X: @yeojinsoul__
 
