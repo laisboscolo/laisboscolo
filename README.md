@@ -1,7 +1,5 @@
 ## Olá, eu sou a Lais Boscolo 𖠊
 
-![image](https://github.com/user-attachments/assets/8b756c15-9f74-40d8-a8f3-797c931ff826)
-
 
 * 17 Anos - 17 years ✨
 
