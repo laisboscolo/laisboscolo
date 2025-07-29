@@ -13,6 +13,8 @@
 
 * Signo: Touro - Sign: Taurus ♉✨
 
+* Cursando inglês
+
 
 * __como se comunicar comigo?__
 * email: costaboscololais2008@gmail.com
