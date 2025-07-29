@@ -46,12 +46,11 @@
 <hr>
 <hr>
 
-💻 Site de apresentação
+## 💻 Site de apresentação
  
 https://laisboscolo.github.io/curriculo.js-lais-/
 
 
-**laisboscolo/laisboscolo** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
 
 
